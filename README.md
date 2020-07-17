@@ -1,2 +1,2 @@
 
-https://KESARJAIN.github.io/P27/
+https://kesarjain.github.io/P27/
